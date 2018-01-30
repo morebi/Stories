@@ -1,0 +1,2 @@
+# Stories
+nice shoes retard
